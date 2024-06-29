@@ -2,7 +2,7 @@
  
 Perkenalkan nama saya **Alfiyah Indah Sari**.<br>
  
-Saya seorang **Mahasiswa** di Universitas Negeri Malang.<br>
+Saya seorang Mahasiswa Jurusan Matematika di Universitas Negeri Malang.<br>
  
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/alfiyah-indah-sari-726004299/)ku ya.
  
